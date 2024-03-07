@@ -1,0 +1,2 @@
+# Ulugbek
+Shaxsiy veb-sayt
